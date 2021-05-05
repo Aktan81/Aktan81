@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aktan81
+- 👋 Hi, I’m @Aktan
 - 👀 I’m interested in recycling
 - 🌱 I’m currently learning cryptocurrency !
 - 💞️ I’m looking to collaborate on environmental issues .
